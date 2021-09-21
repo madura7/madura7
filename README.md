@@ -1,6 +1,6 @@
 Here is What I'm upto 👋
 
-Read below to explore me
+Read below to explore me 🙂
 
 - 👋 Hi, I’m Madhura Wanniarachchi
 - 👀 I’m interested in learing web and mobile technologies 
